@@ -4,4 +4,4 @@ lmao read me
 Hewo hoomans
 
 I am TheBoredBox aka dumb dumb or idot
-I like Naoto Shirogane ad stuff
+I like Naoto Shirogane and stuff
